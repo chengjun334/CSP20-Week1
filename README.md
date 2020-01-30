@@ -10,6 +10,6 @@ Click images below!
 
 
 ## Links
-weavesilk.com
+www.weavesilk.com
 
 www.fuseworks.it:en:works:amygdala
